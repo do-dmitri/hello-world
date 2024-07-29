@@ -1,6 +1,6 @@
 Editable version
-The real name of David Bowie is David Jons.
+The real name of David Bowie is David Jones.
 
-David has a son - Duncan, who directed a film in 2009. Can be looked up on imdb.com
+David had a son - Duncan, who directed a film in 2009. Can be found on imdb.com as "Moon" by Duncan Jones
 
-This is starting point to begin, merge, and develop new life...  :^)
+:^)
